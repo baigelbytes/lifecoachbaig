@@ -8,13 +8,13 @@ tags = [
     "Suffering",
     
 ]
-date = "2021-09-12"
+date = "2021-09-09"
 series = ["seriesName"]
 [ author ]
   name = "Adnan Baig"
 +++
 
-(Origionally written on the 9th of september 2021)
+
 
 ## The Story:
 
