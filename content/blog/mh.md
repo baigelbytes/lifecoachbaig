@@ -155,7 +155,7 @@ Thanks for reading this article! I genuinely hope you found it helpful. Remember
 
 Feel free to reach out to me at baigelbytes@gmail.com if you'd like any further advice or information on life coaching or if you would be interested in trying it out and again, **don't hesitate to use the links above if you feel like you're in a crisis or dial 999 if it's an emergency.**
 
-If you'd like to read more articles like this feel free to follow me on social media using the links on my homepage or below.
+If you'd like to read more articles like this feel free to follow me on social media using the links on [my homepage](https://baigelbytes.github.io/lifecoachbaig/) or below.
 
 If you'd like to support my work and also get something back in return, feel free to head to my [life coaching](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/) page to see what it's all about and sign up if you think it's for you:
 

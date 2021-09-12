@@ -139,7 +139,7 @@ It's important to point out though that I don't think it's the majority of x-Mus
 
 ---
 
-I hope you enjoyed this article or at least found it interesting. If you'd like to read more articles of mine in the future feel free to follow me using the links on my home page or just below :)
+I hope you enjoyed this article or at least found it interesting. If you'd like to read more articles of mine in the future feel free to follow me using the links on [the home page](https://baigelbytes.github.io/lifecoachbaig/) or just below :)
 
 Facebook: https://www.facebook.com/adnan.baig.73
 
