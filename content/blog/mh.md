@@ -8,7 +8,7 @@ tags = [
     "Self Awareness",
     "",
 ]
-date = "2021-09-11"
+date = "2021-09-12"
 series = ["seriesName"]
 [ author ]
   name = "Adnan Baig"
@@ -18,36 +18,35 @@ series = ["seriesName"]
 
 *Disclaimer:* I am not a medical professional. The points of advice I'm about to give in this article are not medical advice, if you are experiencing symptoms of any medical conditions please seek professional advice from your GP. The tips I list below can however be used in addition to any professional medical advice you recieve from your doctor so long as they approve. Thank you :)
 
-
-Considering all of the near infinite crazyness that's been happening over the last decade (I'm reffering off course to that year that shall not be named which felt like a decade.), I think it's fair to say that just about everyone has experienced some form of mental health issue or trauma. Whether it was depression, anxiety stress or the loss of a loved one. I want you, the person reading this article right now to know, there is help available and you are 100% capable of getting through this!!
+Considering all of the near infinite crazyness that's been happening over the last decade (I'm reffering off course to that year that shall not be named which felt like a decade.), I think it's fair to say that just about everyone has experienced some form of mental health issue or trauma. Whether it was depression, anxiety, stress or the loss of a loved one. I want you, the person reading this article right now to know, there is help available and you are 100% capable of getting through this!!
 
 In this article I'm going to go over some of the things that have helped me to get past issues I've had and sometimes continue to have. Some of these issues have included depression, anxiety & self esteem or self confidence issues among others.
 
 ## Self acceptance. It's ok to not be ok.
 
-Sometimes when people are depressed they either tend to go one of two ways. Either sinking deeper into it or desparately trying to run away from it by trying to distract themselves from it.
+Sometimes when people are depressed they tend to go one of two ways. Either sinking deeper into it or desparately trying to run away from it by trying to distract themselves from it.
 
 Here's the thing though. Have you ever tried not to think of something? Like, right now, try and I mean really try not to think of an elephant.
 
-You pictured an elephant didn't you.
+You pictured an elephant didn't you. It's ok, elephants are awesome after all!
 
 This is the problem with trying to evade somthing thats a part of you. Wherever you go, there you are!
 
 But the other option isn't any better. Simply sinking deeper and deeper into depression will only make you feel worse and worse until you start to question if there's actually any point to all this (there absolutely is by the way!!!).
 
-This is something I have first hand experience of. So if this is what you're going through right now, trust me I know how you feel and more importantly I want you to know with as much certainty as the number of inches in a foot being 12. **You 100% have what it takes to get past this!!**
+This is something I have first hand experience of. So if this is what you're going through right now, trust me I know how you feel and more importantly I want you to know with as much certainty as the number of inches in a foot being 12. *You 100% have what it takes to make it through this!!*
 
-This is where the 3rd option comes in. Not running away, not sinking into the quicksand but actually acknolaging that you are depressed. It's only when you acknowlage that you have an issue that you can start to find ways to deal with it. But acknowlagement on it's own is not enough. You need to remember something else:
+This is where the 3rd option comes in. Not running away, not sinking into the quicksand but actually acknowleging that you are depressed. It's only when you acknowlege that you have an issue that you can start to find ways to deal with it. But acknowlegement on it's own is not enough. You need to remember something else:
 
-"This too, shall pass."
+### "This too, shall pass!"
 
-Know, as sure as there are a hundred centemetres in a meeter, a thousand meters in a kilometer as matter of factly as the beat of your heart that how ever bad it feels right now **it WILL** and I mean **WILL** pass!! Two things in life are certain, one day it will end, and time does not stop (unless you can travell at the speed of light, but you can't so it doesn't XD).
+Know, as sure as there are a hundred centemetres in a meter, a thousand meters in a kilometer as matter of factly as the beat of your heart that how ever bad it feels right now *it WILL* and I mean *WILL* pass!! Two things in life are certain, one day life will end, and time does not stop (unless you can travel at the speed of light XD).
 
-For me, simply remembering that fact that whatever negative feelings I have will pass allows me to switch from sinking deeper in, to surfing it like a wave. Sometimes it can be a series of smaller waves and sometimes it can be like a tsunami but no matter what, it **always, always** passes!
+For me, simply remembering that fact that whatever negative feelings I have will pass allows me to switch from sinking deeper in, to surfing it like a wave. Sometimes it can be a series of smaller waves and sometimes it can be like a tsunami but no matter what, it *always, ALWAYS* passes!
 
-Just knowing this can give you the calm you need to get through whatever pain you're feeling. So anytime you're feeling low, remind yourself to acknowlage your emotions and that this too **WILL** pass!
+Just knowing this can give you the calm you need to get through whatever pain you're feeling. So anytime you're feeling low, remind yourself to acknowlage your emotions and that this too *WILL* pass!
 
-If you are already stuck deep in paralysing depression then there is absolutely still things you can do to remedy the situation...
+If you are already stuck deep in paralysing depression then there are absolutely still things you can do to remedy the situation...
 
 
 ### Break things down into the simplest, smallest steps.
@@ -73,13 +72,13 @@ I'm not trying to be patronising here. There have been times when I have literal
  
 2. Celebrate **ALL** victories no matter how small!!
 
-Guess what? You've done your shopping! And not only that, you've already cooked yourself dinner! Congratulations! When you're dealing with any form of depression or generally feeling low, it's absolutely vital to make sure you celebrate all victories! In fact I would suddguest that everyone does this by default!
+Guess what? You've done your shopping! And not only that, you've already cooked yourself dinner! Congratulations! When you're dealing with any form of depression or generally feeling low, it's absolutely vital to make sure you celebrate all victories! In fact I would suggest that everyone does this by default!
 
-I'm not saying that you should throw a party with all your friends and family everyime you complete a shopping trip or get some exercise done for the day but I am saying that doing these things give you a valid reason to conciously be proud of yourself because if think about the bigger picture, what you're doing is, building confidence and self esteem based off of actual, provable experience.
+I'm not saying that you should throw a party with all your friends and family everyime you complete a shopping trip or get some exercise done for the day but I am saying that doing these things give you a valid reason to conciously be proud of yourself because if think about the bigger picture, what you're doing is, building confidence and self esteem based off of actual, provable activity.
 
 As you progress from day to day and from one goal to the next, you will keep gaining confidence to the point that, when you next feel down or even if you experience a severe episode of depression, anxiety or anything else. You now have undeniable evidence that you absolutely can do things even when you don't think you can.
 
-I can't explain just how good that feels, to be able to be in a low point and then remember who the fu*k you are and manage to pick yourself up and get back on your feet.
+I can't explain just how good that feels, to be able to be in a low point and then remember who the fu*k you are and manage to pick yourself up and get back on your feet!
 
 There will always be times in life where we are hit by things that test our resolve but it's how we respond to them that make the difference.
 
@@ -89,19 +88,19 @@ As the stoics and no doubt many other people have likely said throught history, 
 
 ## MOVE!!
 
-Exercise is probably the best thing you can do to reduce the impact that depression and anxiety have on you as well as the frequency with wich you experience it. This is bacause, as you may already know, exercise causes chemical changes in the body through the release of different hormones that literally make you feel better. Hormones like seratonin, endorphins, dopamine and more.
+Exercise is probably the best thing you can do to reduce the impact that depression and anxiety have on you as well as the frequency with wich you experience it. This is because, as you may already know, exercise causes chemical changes in the body through the release of different hormones that literally make you feel better. Hormones like seratonin, endorphins, dopamine and more.
 
 The best forms of care are often the ones that are the most natural. This isn't always the case but when it comes to exercise, there's just nothing that compares to it. We are built to move!
 
-Just like with the shopping trip example I geve before, exercise can be broken down into whatever sized chunks you find achieveable. You dont have to run a marathon or break the land speed record on a bicycle. Start with whatever you think suits you. This could literally one lap around the block every other day. Too much? Ok, one lap around you're building (If you're in flats for example).
+Just like with the shopping trip example I gave before, exercise can be broken down into whatever sized chunks you find achieveable. You dont have to run a marathon or break the land speed record on a bicycle. Start with whatever you think suits you. This could literally be one lap around the block every other day. Too much? Ok, one lap around you're building (If you're in flats for example).
 
-It's just as possible to start exercising even if there's another covid lockdown. For example you could do a few pushups a day or some squats. Don't have a big enough room? You could do situps, leg raises, crunches or planks in bed. There's a solution for every problem and the key finding them is to think in terms of questions not statements.
+It's just as possible to start exercising even if there's another covid lockdown. For example you could do a few pushups a day or some squats. Don't have a big enough room? You could do situps, leg raises, crunches or planks in bed. There's a solution for every problem and the key finding to them is to think in terms of questions not statements.
 
 Instead of thinking, "I'll never be able to do this!", ask yourself "How could I approach this differently?"
 
-For example, I wanted some weights. In particular some adjustable kettle bells. I went on amazon to check how much one would cost and they were over £100!! Well obviously there's now way I was about to pay that much for what was essentially, 'something heavy to pick up and put down'.
+For example, I wanted some weights. In particular some adjustable kettle bells. I went on amazon to check how much one would cost and it was over £100 just for one!! Well obviously there's no way I was about to pay that much for what was essentially, 'something heavy to pick up and put down'.
 
-So I asked myself, what could I do differently? I kept thnking about it and then later when I went down to the kitchen I noticed someone had left an empty milk bottle one the kitchen table. That's when I had an idea. I could just use milk bottles as weights. 1 litre of water weighs 1kg so each bottle when full would be a 2kg weight.
+So I asked myself, what could I do differently? I kept thnking about it and then later when I went down to the kitchen I noticed someone had left an empty milk bottle on the kitchen table. That's when I had an idea. I could just use milk bottles as weights. 1 litre of water weighs 1kg so each bottle when full would be a 2kg weight.
 
 Then I had another idea. If I could somehow string these bottles together by putting something through the handles, I'd essentially have an adjustable kettle bell. And that's exactly what I did using an old inner tube from my bike. I'd made out of rubbish an adjustable kettle bell the same weight as the one that was selling on amazon for over £100 and this one that I made basically cost me nothing.
 
@@ -112,19 +111,23 @@ That's the power of thinking in terms of questions! I saved over £100 on weight
 
 ## Meditation actually works!
 
-Meditation has scientifically proven benefits that can be felt even within one single session! Done right it can completely transform the way your mind works. It isn't for everyone but by meditating for just a few minutes a day you can increase your focus and attention span, significantly reduce stress, anxiety and depression, gain mental clarity and even potentially get your brain performing at a higher capacity!
+Meditation has scientifically proven benefits that can be felt even within one single session! Done right it can completely transform the way your mind works. It isn't for everyone but by meditating for just a few minutes a day you can increase your focus and attention span, significantly reduce stress, anxiety and depression, gain mental clarity and even potentially get your brain performing at a higher capacity, and that's only some of the benefits!
+
+It's actually been demonstrated in laboratory conditions that meditation can allow you to take a measure of control over systems in the mind and body that, for most people are automatic and subconcious.
+
+Things like your body temperature or your immune response. Eventually I'll be bringing over my blog posts from my old website where I go over meditation in more detail but in the mean time, look up Wim Hoff on youtube. Trust me, you wont be dissapointed! 
 
 Meditation has literally been used for thousands of years by hundreds of cultures, religions and people all across the world and nowadays it's easier than ever to get assistance through apps like headspace or insight timer. But really the only thing you need to start is yourself.
 
 Got you? Right, find somewhere to sit comfortably or lie down if you preffer and try to relax, not so much that you start to fall asleep though. Now, start focusing on your breathing. Try and breath in through your nose and out through your mouth. Deep, slow calm breaths.
 
-Repeat this around 10 to 15 or so times. Then, simply relax and breath normaly. Pay attention to your breath and if you can, try to breath by moving your stomach and not your chest. Pay attention to the movement of your stomach as you breath and let it help you relax.
+Repeat this around 10 to 15  times or so. Then, simply relax and breath normaly. Pay attention to your breath and if you can, try to breath by moving your stomach and not your chest. Pay attention to the movement of your stomach as you breath and let it help you relax.
 
-As your doing this you will likely notice many thoughts in your head about various things that might be going on in your life. Observe these thoughts in a similar way to how you might watch the world go by on a bus or train ride. Knowing their there but not really diving into them.
+As your doing this you will likely notice many thoughts in your head about various things that might be going on in your life. Observe these thoughts in a similar way to how you might watch the world go by on a bus or train ride. Knowing they're there but not really diving into them.
 
 Inevitably (if you're anything like me) your mind will drift or you will get lost in your thoughts but that's perfectly normal. As soon as you notice this happening put yourself back on that imaginary bus and refocus your attention on your breathing.
 
-And that's basically it. as you practice over time, you'll get better at watching your thoughts go by without actually getting lost in them and eventually you'll get to a point where you start to have less and less thoughts in your mind when you meditate. This will give you a profound sense of peace that will carry you like a feather in a nice summers breeze through your day, better able to deal with whatever comes.
+And that's basically it. As you practice over time, you'll get better at watching your thoughts go by without actually getting lost in them and eventually you'll get to a point where you start to have less and less thoughts in your mind when you meditate. This will give you a profound sense of peace that will carry you like a feather in a nice summers breeze through your day, better able to deal with whatever comes.
 
 Consistency is key!
 
@@ -148,13 +151,16 @@ https://www.nhs.uk/service-search/mental-health/find-an-urgent-mental-health-hel
 
 ---
 
-Thanks for reading this article! I genuinely hope you found it helpful. Remember, whatever you're going through there is always help available! Feel free to reach out to me at baigelbytes@gmail.com if you'd like any further advice or information on life coaching or if you would be interesting in trying it out and again, **don't hesitate to use the links above if you feel like you're in a crisis or dial 999 if it's an emergency.**
+Thanks for reading this article! I genuinely hope you found it helpful. Remember, whatever you're going through there is always help available!
 
-If you'd like to read more articles like this feel free to follow me on social media using the links on my homepage or the links below.
+Feel free to reach out to me at baigelbytes@gmail.com if you'd like any further advice or information on life coaching or if you would be interested in trying it out and again, **don't hesitate to use the links above if you feel like you're in a crisis or dial 999 if it's an emergency.**
 
-If you'd like to support my work and also get something back in return, feel free to head to my [life coaching](https://lifecoachbaig.github.io/baigelbytes/lifecoaching/) page to see what it's all about and sign up if you think it's for you:
+If you'd like to read more articles like this feel free to follow me on social media using the links on my homepage or below.
 
-Life coaching page: https://lifecoachbaig.github.io/baigelbytes/lifecoaching/
+If you'd like to support my work and also get something back in return, feel free to head to my [life coaching](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/) page to see what it's all about and sign up if you think it's for you:
+
+Life coaching page: https://baigelbytes.github.io/lifecoachbaig/lifecoaching/
+
 
 Email: baigelbytes@gmail.com
 
