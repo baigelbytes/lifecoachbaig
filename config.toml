@@ -1,4 +1,4 @@
-baseURL = "https://www.baigelbytes.co.uk/"
+baseURL = "https://baigelbytes.github.io/lifecoachbaig"
 title   = "Baigel Bytes"
 languageCode = "en-us"
 theme = "hugo-theme-hello-friend-ng"
