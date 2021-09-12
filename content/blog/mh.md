@@ -1,5 +1,5 @@
 +++
-title = "Mental Health Issues, some Self Help Tips"
+title = "Mental Health Issues, some Self Help Tips."
 description = ""
 type = ["posts","post"]
 tags = [
