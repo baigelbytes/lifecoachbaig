@@ -20,10 +20,6 @@ You'll start to see progress from the very first session and where you go from t
 
 ## Pricing:
 
-*Would you be interested in free life coaching?*
-
-I'm looking to gain experience working with different clients so for a limited time I'm offereing free sessions & messaging support. Email me using the address below if you're interested!
-
 
 *To book a session email me at:*
 
