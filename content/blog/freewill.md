@@ -51,15 +51,15 @@ If you were already in a good place mentally you'd likely refuse the offer but c
 
 I know of people who have been that low who chose to turn things around and actually succeeded. People who used to be in prison and then completely transformed their lives and who now help others to do the same! Isn't this an example of free will?
 
-These people had every reason not to change! Every reason to just give up and cease to be but they CHOSE the alternative. You could say that the drive to change in them was a reaction to theives they were living and therefore not technically a choice but then why don't all people is those situations do the same thing?
+These people had every reason not to change! Every reason to just give up and cease to be but they CHOSE the alternative. You could say that the drive to change in them was a reaction to the lives they were living and therefore not technically a choice but then why don't all people in those situations do the same thing?
 
 Isn't it because they make a decision not to? Maybe they don't see it as an option.
 
 ## Words from an actual Philosophy student:
 
-Whilst I do enjoy exploring philosophical topics such as this, I'm not actually trained in philosophy. In fact really, the only academic qualification I can jestfully attribute to myself is "Some random idiot that gets curious about stuff".
+Whilst I do enjoy exploring philosophical topics such as this, I'm not actually trained in philosophy. In fact really, the only academic qualification I can jestfully attribute to myself is "Some random idiot that gets curious about stuff" XD.
 
-So, to give a proffetional opinion, here's a video by Cosmic Skeptic a youtuber and philosopher I'm guessing you might have heard of, explaining the idea that free will is an illusion:
+So, to give a professional opinion, here's a video by Cosmic Skeptic a youtuber and philosopher I'm guessing you might have heard of, explaining the idea that free will is likely an illusion:
 
 [https://youtu.be/OwaXqep-bpk](https://youtu.be/OwaXqep-bpk)
 
