@@ -139,7 +139,11 @@ It's important to point out though that I don't think it's the majority of x-Mus
 
 ---
 
-I hope you enjoyed this article or at least found it interesting. If you'd like to read more articles of mine in the future feel free to follow me using the links on [the home page](https://baigelbytes.github.io/lifecoachbaig/) or just below :)
+Thanks for reading this article! Hopefully you enjoyed reading it or at least found it interesting. If you'd like to read more articles like this feel free to follow me on social media using the links on [the homepage](https://baigelbytes.github.io/lifecoachbaig/) or below.
+
+If you'd like to support my work but also get something back in return I'm also a certified life coach! Feel free to head to my [life coaching](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/) page to see what it's all about and sign up if you think it's for you:
+
+Life coaching page: https://baigelbytes.github.io/lifecoachbaig/lifecoaching/
 
 Facebook: https://www.facebook.com/adnan.baig.73
 
@@ -149,9 +153,11 @@ Twitter: https://twitter.com/adnanbaig601
 
 
 
-
 [^1]: I'm aware this doesn't just happen with Islam but also happens with other religions, I'm covering Islam in particular because I feel like (and I could be wrong) this happens at least slightly more with Islam than other religions.
 
 [^2]: Progression wouldn't nessacerily be liniar on smaller scales but overal get better. This is something we can see as having happened in society already through the decades.
+
+
+
 
 
