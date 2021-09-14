@@ -98,7 +98,7 @@ As you can see, these two people were having vastly different experiences but re
 
 As for the boy I think his opinion might be similar to my opinion of my nightmare i.e, it felt like suffering at the time but then realised really, it wasn't. So what I'm saying is in my opinion, suffering can soetimes be relative to an individual's perspective and their reaction not necessarily the experience itself.
 
-This has implications for people in the real world and shares similarities with other philosophies like stoicism and similar components of various religions. It's almost certain that you will experience hardship and suffering in your life multiple, multiple times but how you react to it is what makes all the difference!
+This has implications for people in the real world and shares similarities with other philosophies like stoicism and similar components of various religions. It's almost certain that you will experience hardship and suffering in your life multiple, multiple times  and off course there are different degrees of harm that can be inflicted upon us both by other people and ourselves, but how we react to that can sometimes make all the difference.
 
 It's all, about perspective.
 
