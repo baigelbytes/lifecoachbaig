@@ -197,4 +197,9 @@ disableHugoGeneratorInject = false
     identifier = "lifecoaching"
     name       = "Life Coaching"
     url        = "lifecoaching/"
+    
+  [[menu.main]]
+    identifier = "supportme"
+    name       = "Support Me"
+    url        = "supportme/"
 
