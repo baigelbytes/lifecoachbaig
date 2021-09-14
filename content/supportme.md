@@ -9,7 +9,9 @@ aliases = ["Life Coaching"]
 
 ## Help me turn this into a career.
 
-I'd like to do blogging and life coaching full time without the need for a 9-5 because **this** is where my passions lie! I've wanted to write books many times before at different points in my life but my interests have always shifted from one subject to another. Blogging is perfect for this as I can literally write about any subject I like.
+I'd like to do blogging and life coaching full time without the need for a 9-5 because **this** is where my passions lie!
+
+I've wanted to write books many times before at different points in my life but my interests have always shifted from one subject to another. Blogging is perfect for this as I can literally write about any subject I like.
 
 Additionally, after spending almost 6 years in the corporate world I can say without a doubt that it is not for me! There were some really good times in the early years but at some companies I've both wittnesed and heard too much about how people get treated in those worlds[^1].
 
