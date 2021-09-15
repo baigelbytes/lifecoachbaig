@@ -137,21 +137,6 @@ Even if peaceful coexistence isn't something that's ever going to be completely 
 
 It's important to point out though that I don't think it's the majority of x-Muslims that act like this, in fact regarding the ripping of pages from the Quran I've only seen one YouTuber do it and heard of one other YouTuber doing the same thing.
 
----
-
-Thanks for reading this article! Hopefully you enjoyed reading it or at least found it interesting. If you'd like to read more articles like this feel free to follow me on social media using the links on [the homepage](https://baigelbytes.github.io/lifecoachbaig/) or below.
-
-If you'd like to support my work but also get something back in return I'm also a certified life coach! Feel free to head to my [life coaching](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/) page to see what it's all about and sign up if you think it's for you:
-
-Life coaching page: https://baigelbytes.github.io/lifecoachbaig/lifecoaching/
-
-Facebook: https://www.facebook.com/adnan.baig.73
-
-Instagram: https://www.instagram.com/adnanbaig601/
-
-Twitter: https://twitter.com/adnanbaig601
-
-
 
 [^1]: I'm aware this doesn't just happen with Islam but also happens with other religions, I'm covering Islam in particular because I feel like (and I could be wrong) this happens at least slightly more with Islam than other religions.
 
@@ -159,5 +144,24 @@ Twitter: https://twitter.com/adnanbaig601
 
 
 
+
+
+
+---
+
+Thanks for reading this article! Hopefully you enjoyed reading it or at least found it interesting. If you'd like to read more articles like this feel free to follow me on social media using the links on [the homepage](https://baigelbytes.github.io/lifecoachbaig/) or below.
+
+I'm trying to turn this into a full time career. If you'd like to support my work and help me reach that goal, head to my [support me](https://baigelbytes.github.io/lifecoachbaig/supportme/) page to see how you could do just that.
+
+There's no preassure to do so however. If all you do is read my articles that's fine and if you find them informative, entertaining or helpfull please feel free to share them as much as you like! :)
+
+
+[Life coaching page](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/)
+
+[Facebook](https://www.facebook.com/adnan.baig.73)
+
+[Instagram](https://www.instagram.com/adnanbaig601/)
+
+[Twitter](https://twitter.com/adnanbaig601)
 
 
