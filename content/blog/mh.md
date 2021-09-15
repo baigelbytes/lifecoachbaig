@@ -6,7 +6,7 @@ tags = [
     "Mental Health",
     "Life Coaching",
     "Self Awareness",
-    "",
+    
 ]
 date = "2021-09-12"
 series = ["seriesName"]
