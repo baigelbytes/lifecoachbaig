@@ -77,7 +77,7 @@ So if I had to choose determinism, I'd be more likely to choose soft determinism
 
 Whilst I do enjoy exploring philosophical topics such as this, I'm not actually trained in philosophy. In fact really, the only academic qualification I can jestfully attribute to myself is "Some random idiot that gets curious about stuff" XD.
 
-So, to give a professional opinion, here's a video by Cosmic Skeptic a youtuber and philosopher I'm guessing you might have heard of, explaining the idea that free will is likely an illusion:
+So, to give a professional opinion, here's a video by Cosmic Skeptic a youtuber and philosopher I'm guessing you might have heard of, explaining the idea that free will is likely an illusion. It's a little be scary to be honest:
 
 [https://youtu.be/OwaXqep-bpk](https://youtu.be/OwaXqep-bpk)
 
