@@ -63,7 +63,7 @@ Among the philosophers that subscribe to the notion of determinism, there are tw
 
 * **Hard Determinism.**
 
-Hard determinism makes the claim that everything that happens, including every single decision we make no matter how big or how small, is already determined by past and current events. It's the idea (one that I personally disagree with) that we have absolutely no choise in any of the things that we do, say or think.
+Hard determinism makes the claim that everything that happens, including every single decision we make no matter how big or how small, is already determined by past and current events. It's the idea (one that I personally disagree with) that we have absolutely no choice in any of the things that we do, say or think.
 
 * **Soft Determinism.**
 
