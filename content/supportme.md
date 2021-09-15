@@ -15,16 +15,16 @@ I've wanted to write books many times before at different points in my life but 
 
 Additionally, after spending almost 6 years in the corporate world I can say without a doubt that it is not for me! There were some really good times in the early years but at some companies I've both wittnesed and heard too much about how people get treated in those worlds[^1].
 
-I want to have a career where I get to help people in a **much** larger capacity than just resetting their passwords or getting their internet working.
+Alsp, I want to have a career where I get to help people in a **much** larger capacity than just resetting their passwords or getting their internet working.
 
 This is what led me to life coaching. It actually enables me to work with clients to completely transform their lives while working from anywhere I like which means I wont be locked into living in one place because of work.
 
 
 
-If you'd like to help me turn this into a profession then there are three ways ynu could help:
+If you'd like to help me turn this into a profession then there are three ways you could help:
 
 
-1. *You can send me money via my paypal link.* (You'll need a paypal account for this.)
+1. *You can send me money via my [paypal link](https://paypal.me/baigelbytes?locale.x=en_GB).* (You'll need a [paypal account](https://www.paypal.com/uk/webapps/mpp/account-selection) for this.)
 
 I have a [paypal account](https://paypal.me/baigelbytes?locale.x=en_GB) for the blog and you can use this link to send me any amount of money you like, however small it will be immensly apreciated!!!
 
