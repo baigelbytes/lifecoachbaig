@@ -20,6 +20,7 @@ You'll start to see progress from the very first session and where you go from t
 
 ## Pricing:
 
+Would you be interested in free life coaching? I'm trying to get experience working with different clients at the moment so for a limited time I'm offering my life coaching services for free. Feel free to email me at the address below to sign up to any of the services listed on this page free of charge.
 
 *To book a session email me at:*
 
@@ -27,7 +28,6 @@ baigelbytes@gmail.com
 
 There are several different options listed below feel free to pick whichever one best suits your needs. Please mention the service you're interested in using in the booking email.
 
-**Please note: ALL payments must be made in advance of recieving any services.**
 
 ### One, 1 Hour Coaching Session
 1 hour · £50

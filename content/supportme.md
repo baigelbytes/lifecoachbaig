@@ -24,14 +24,23 @@ This is what led me to life coaching. It actually enables me to work with client
 If you'd like to help me turn this into a profession then there are three ways you could help:
 
 
-1. *You can send me money via my [paypal link](https://paypal.me/baigelbytes?locale.x=en_GB).* (You'll need a [paypal account](https://www.paypal.com/uk/webapps/mpp/account-selection) for this.)
+1. *Sign up to my [life coaching](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/).*
+
+If you want to get something back for your money then I'd higly reccomend you sign up for my [life coaching services](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/). I have many different options available including individual one off sessions and monthly subscriptions.
+
+Feel free to take a look at my [life coaching page](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/) to see if its for you.
+
+Payments for my life coaching services can be taken by bank transfer or via either of the methods listed below.
+
+
+2. *You can send me money via my [paypal link](https://paypal.me/baigelbytes?locale.x=en_GB).* (You'll need a [paypal account](https://www.paypal.com/uk/webapps/mpp/account-selection) for this.)
 
 I have a [paypal account](https://paypal.me/baigelbytes?locale.x=en_GB) for the blog and you can use this link to send me any amount of money you like, however small it will be immensly apreciated!!!
 
 [paypal.me/baigelbytes](https://paypal.me/baigelbytes?locale.x=en_GB)
 
 
-2. *You can send me money via my [monzo.me](https://monzo.me/mirzabaig6?d=Thank%20you%20so%20much%20for%20your%20support!!) link.* (You do not need to have a monzo account for this.)
+3. *You can send me money via my [monzo.me](https://monzo.me/mirzabaig6?d=Thank%20you%20so%20much%20for%20your%20support!!) link.* (You do not need to have a monzo account for this.)
 
 
 Please note that the monzo link does not let you send payments of less than £1 or from credit or prepaid cards. You can however send £1 or more using debit cards.
@@ -39,17 +48,6 @@ Please note that the monzo link does not let you send payments of less than £1 
 [monzo.me/mirzabaig6](https://monzo.me/mirzabaig6?d=Thank%20you%20so%20much%20for%20your%20support!!)
 
 
-3. *Sign up to my [life coaching](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/).*
-
-If you want to get something back for your money then I'd higly reccomend you sign up for my [life coaching services](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/). I have many different options available including individual one off sessions and monthly subscriptions.
-
-Feel free to take a look at my [life coaching page](https://baigelbytes.github.io/lifecoachbaig/lifecoaching/) to see if its for you.
-
-Also, if you donate money either as a one off or over multiple individual payments that add up to the value of any of my services you can send me an email showing me this is the case and sign up for any applicable life coaching services you like.
-
-For example, if you give £10 a month for 5 months, and then send me an email showing the payments you made, you can sign up for a one hour session at no extra cost. This essentially allows you to save up for sessions if you can't afford them outright.
-
-Payments for my life coaching services can be taken by bank transfer or via either of the methods listed above.
 
 
 ## Why don't I just use ads?
