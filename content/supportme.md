@@ -49,7 +49,7 @@ Also, if you donate money either as a one off or over multiple individual paymen
 
 For example, if you give £10 a month for 5 months, and then send me an email showing the payments you made, you can sign up for a one hour session at no extra cost. This essentially allows you to save up for sessions if you can't afford them outright.
 
-Payments for my life coaching services can be taken by bank transfer or cash, or via either of the methods listed above.
+Payments for my life coaching services can be taken by bank transfer or via either of the methods listed above.
 
 
 ## Why don't I just use ads?
