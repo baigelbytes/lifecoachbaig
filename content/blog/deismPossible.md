@@ -29,7 +29,7 @@ One thing that religious people often say is 'There just has to be a creator'. A
 
 The real truth is more than likely, nobody, religious or otherwise really *knows* in an empirical, objective sense whether or not there is or isn't a creator. This is because God, at least by some definitions falls outside of the domain of science because God is often thought to reside outside of space and time i.e. God is not made up of matter or energy.
 
-One argument from atheists that I used to agree with on the unlikelihood of the God or gods of our religions being real is the Human centric idea that God created the entire universe for us: 'why would God create a universe 14 billion light years in size just for one tiny species on one insignificant planet in one insignificant corner of one insignificant galaxy? The universe is so so vast and has existed for so long before life on earth came along let alone humans, it just doesn't make sense!'
+One argument from atheists that I used to agree with on the unlikelihood of the God or gods of our religions being real is the Human centric idea that God created the entire universe for us: 'why would God create a universe 46 billion light years in diameter just for one tiny species on one insignificant planet in one insignificant corner of one insignificant galaxy? The universe is so so vast and has existed for so long before life on earth came along let alone humans, it just doesn't make sense!'
 
 And this is where I would argue...
 
