@@ -30,14 +30,14 @@ There are several different options listed below feel free to pick whichever one
 
 
 ### One, 1 Hour Coaching Session
-1 hour · £50
+1 hour · £0
 
 In a typical 1st session, we would look at where you are now, what challenges you're facing in general and what goals or aspirations you might have. Then we co-create a plan unique to you that you can use to achieve those goals.
 One off sessions can be booked as often or as seldom as needed and can benefit people who are just curious about Life Coaching and want to experience some of it's benefits. Each session also comes with 1 week of messaging support.
 For maximum benefit though it is recomended to have a session once a week as this will help you progress consistently towards your goals.
 
 ### One Months Life Coaching (5 Sessions)
-1 hour per session · £200
+1 hour per session · £0
 
 With a month long subscription you will get 5 hour long life coaching sessions and 5 weeks of messaging support. Getting continued support ensures that any momentum that is built up in sessions is maintained over time to ensure you're always moving towards your goals and dreams!
 
@@ -46,19 +46,19 @@ This is for the people who are ready to change their lives and to put in the con
 If you are unsure if this is for you, I would recomend booking a one off session first.
 
 ### One, 30 Minute Coaching Session
-£30
+£0
 
 These shorter 30 minute sessions are for people who just want a quick taste of what working with a life coach is like. They follow a condensed version of the 1 hour format so we still get to see where you are now and what goals and aspirations you have, but not as in depth as we could with a full hour session.
 30 Minute sessions don't come with any additional support as they are really just taster sessions.
 
 ### One Week of messaging support.
-£30
+£0
 
 If you would just like messaging support without live sessions this is the option for you. We won't be able to go as in depth as we would with a full, hour long session but we can still explore your goals and make some plans on how they can be achieved.
 Messaging is done via facebook, whatsapp or email.
 
 ### Five Weeks Messaging Support
-£100
+£0
 
 If you would just like messaging support without live sessions this is the option for you. We won't be able to go as in depth as we would with a full, hour long session but we can still explore your goals and make some plans on how they can be achieved.
 Messaging is done via facebook, whatsapp or email.
