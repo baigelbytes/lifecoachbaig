@@ -8,7 +8,7 @@ tags = [
     "Science",
     
 ]
-date = "2021-09-13"
+date = "2021-09-18"
 series = ["Topics I can't compute."]
 [ author ]
   name = "Adnan Baig"
