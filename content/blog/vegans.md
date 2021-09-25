@@ -8,7 +8,7 @@ tags = [
     "Ethics & Morality",
     
 ]
-date = "2021-09-19"
+date = "2021-09-25"
 series = ["seriesName"]
 [ author ]
   name = "Adnan Baig"
