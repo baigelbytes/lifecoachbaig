@@ -177,9 +177,9 @@ Now I had a choice to make. I tried to reconsile my faith with my sexuality but 
 
 I would have to choose between the two. However, the science is also very clear on this subject. Homosexuality is no more a choice than heterosexuality but when you follow a system that you're not allowed to question it makes embracing facts like these a lot harder as a community and people suffer as a result.
 
-Therefore, I had no choice but to leave Islam.
+Therefore, I had no choice but to leave Islam. Also, seeing gays get executed publicall in saudi arabia didn't help. I even once saw a video of someone publically decapitated by sword in Saudi Arabia. This, cemented the idea in my head that I would not be able to reconcile my sexuality with religion and as my sexuality is not a choice, I had no option but to leave. 
 
-Sure I could try to ignore my sexuality and follow religion but really that would as it does for many people only lead to depression as I would be surpressing a fundamental aspect of my identity. Try to imagine what this would be like if religious people were made to do the same with their religious identities.
+Perhaps I could have tried to ignore my sexuality and follow religion but really that would as it does for many people only lead to depression as I would be surpressing a fundamental aspect of my identity. Try to imagine what this would be like if religious people were made to do the same with their religious identities.
 
 In fact, we unfortunately live in a time where we don't need to imagine this. Look at Frances Burka ban. This is in my opinion a violation of peoples human rights as I mentioned in [a previous article]([https://baigelbytes.github.io/lifecoachbaig/blog/religiousidentity/](https://baigelbytes.github.io/lifecoachbaig/blog/religiousidentity/)) on religion, and multiple times in this article, freedoms must be given to all not just some. People should be allowed to wear whatever they like and if a woman, Muslim, Catholic, Hindu, Sikh, Non-Religious or otherwise wants to cover her hair then let her. She is causing no ham by doing this.
 
